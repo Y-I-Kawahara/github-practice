@@ -13,4 +13,12 @@
 
 Gitの練習
 
+Gitの練習
+Gitの練習
+Gitの練習
+Gitの練習
+Gitの練習
+
+
 try it!!
+
